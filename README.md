@@ -1,1 +1,1 @@
-Ini hanya percobaan
+isi hanya file Eksperimen train 
