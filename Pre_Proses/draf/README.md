@@ -1,1 +1,1 @@
-brisi file file code
+brisi file file code yang tidak di gunakan 
